@@ -9,13 +9,8 @@ devd1029/devd1029 is a ✨ special ✨ repository because its `README.md` (this 
 You can click the Preview link to take a look at your changes.
 --->
 
+9d
 
-
-https://www.microsoft.com/en-in/microsoft-teams/join-a-meeting?rtc=1
-https://meet.google.com/qgr-mtdh-tpa?hs=224
-https://ams.hirepro.in/interview/#/home/eyJsdCI6ICJUa246ZjVkY2JhNmQtZDE5OC00ZWJlLWE4YzktZmZlNjAxYTc4ZTA5In0=
-https://meet.google.com/rff-rcdo-cpx?hs=224
-
-
+https://novoresume.com/t/s/osd1mtdgrglwlf3tmskgsnvfvp7hxpneguvurgzqyrgoof6u4upyx45248kmz81ifsjptb1imliqbtl0wog89e011ooswyjxpdlch44xxwxvtnvkuipmutf84172uq3fiqrpwn4vh6fec4j6h3hmdkmwbncoitjrzy9z7ctmy0uffi3khr5ssjxy63lxlbm8s823l583cc43031f511eeb8f14b13bb13cee6
 
 https://meet.google.com/rff-rcdo-cpx?hs=224
